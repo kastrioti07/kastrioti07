@@ -7,7 +7,7 @@
 - Snapchat-->kastrioti_07
 - 😄 Pronouns:He/Him
 - ⚡ Fun fact:
-- i started programming since 2022 and got into batch files in august 2024
+- i started programming since 2022 and got into batch files in august 2024.
 
 <!---
 kastrioti07/kastrioti07 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
