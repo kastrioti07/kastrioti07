@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning batch
 - 💞️ I’m looking to collaborate on different projects
 - 📫 How to reach me
-- Discord-->kastrioti07 (might not be that active)
+- Discord-->kastrioti07 (might not be that active) Join my discord too---> https://discord.gg/syEMEDpKEt 
 - Snapchat-->kastrioti_07
 - 😄 Pronouns:He/Him
 - ⚡ Fun fact:
