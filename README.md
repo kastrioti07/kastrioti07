@@ -3,11 +3,11 @@
 - 🌱 I’m currently learning batch
 - 💞️ I’m looking to collaborate on different projects
 - 📫 How to reach me
-- Discord-->kastrioti07 (might not be that active) Join my discord too---> https://discord.gg/syEMEDpKEt 
+- Discord-->kastrioti07 (might not be that active) Join my discord too--->  https://discord.gg/VwpKwEeWtd
 - Snapchat-->kastrioti_07
 - 😄 Pronouns:He/Him
 - ⚡ Fun fact:
-- i started programming since 2022 and got into batch files in august 2024.
+- i started programming since 2023 and got into batch files in august 2024.
 
 <!---
 kastrioti07/kastrioti07 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
