@@ -3,8 +3,9 @@
 - 🌱 I’m currently learning batch
 - 💞️ I’m looking to collaborate on different projects
 - 📫 How to reach me
-- Discord-->kastrioti07 (might not be that active) Join my discord too--->  https://discord.gg/VwpKwEeWtd
-- Snapchat-->kastrioti_07
+- Discord-->  kastrioti07 (might not be that active) Join my discord too--->  https://discord.gg/VwpKwEeWtd
+- Snapchat-->  kastrioti_07
+- YouTube-->  https://www.youtube.com/channel/UC-f9FpFrPP-o5_lK4GcVmSw
 - 😄 Pronouns:He/Him
 - ⚡ Fun fact:
 - i started programming since 2023 and got into batch files in august 2024.
